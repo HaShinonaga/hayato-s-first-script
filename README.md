@@ -1,0 +1,1 @@
+# hayato-s-first-script
